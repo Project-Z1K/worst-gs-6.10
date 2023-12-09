@@ -1,0 +1,1 @@
+# worst gs is not working rn becouse indect dll crash btw i will code all recode it and fix it this old shit skkided and pasted asf
